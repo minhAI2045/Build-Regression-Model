@@ -1,2 +1,2 @@
 # Build-Regression-Model
-![Writing Distribution](![image](https://github.com/minhAI2045/Build-Regression-Model/assets/84526787/23347ab3-23d9-49d7-b836-f5d1e0a0a2c5))
+![image](https://www.facebook.com/messenger_media/?attachment_id=642201121117458&message_id=mid.%24cAAAAC0W5foqO_b8CcmIzHm1d5xdZ&thread_id=100006190084858)
